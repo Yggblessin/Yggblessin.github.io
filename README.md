@@ -1,2 +1,2 @@
-# Yggblessin.githut.io
-Man I really need website for some shenanigans 
+# Yggblessin.github.io
+Man I really need a website for some shenanigans 
